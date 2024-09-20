@@ -24,8 +24,8 @@ Here are some stamps! I love HSR, Project Moon and Holostars
 ![autism](https://github.com/user-attachments/assets/37f6765b-552e-4703-ae7a-6a6126a44579)
 
 
-![cringe](https://github.com/user-attachments/assets/c7471b7d-f01f-4abd-bff8-498a99ea4486) 
 ![tumblr_909b9fd0e741ae30d8d2acfd7622fef6_857478dc_400](https://github.com/user-attachments/assets/199d7ca2-e456-418f-bd08-497b8a78f633)
+![cringe](https://github.com/user-attachments/assets/c7471b7d-f01f-4abd-bff8-498a99ea4486) 
 ![tumblr_7d3eb3cf9783b2e34a9497d744a03e5b_933c14f6_250](https://github.com/user-attachments/assets/cb3667c7-3b1a-484d-a82d-ba06b700a14f)
 ![tumblr_df84ad9f117e2aceef4346000976f7df_f1a1db33_250](https://github.com/user-attachments/assets/db279445-835d-40d9-8494-622ff5bbe1c0)
 ![tumblr_0989594a06582cd1d8e14c05805490e9_906a5b4c_250](https://github.com/user-attachments/assets/82c55f1e-5d28-4ee1-852c-c3f78e429340)
